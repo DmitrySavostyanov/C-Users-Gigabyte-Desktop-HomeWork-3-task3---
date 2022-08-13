@@ -1,4 +1,4 @@
-### ![](/img/round%20avatar.png) Дмитрий Савостьянов
+### ![](/img/round%20avatar_2.png) Дмитрий Савостьянов
 Студент группы QAMID-45 в [netology.ru](https://netology.ru/profile/program/qamid-45/schedule) 
 
 
